@@ -1,0 +1,1 @@
+# AI-An-lise-de-Sentimentos
